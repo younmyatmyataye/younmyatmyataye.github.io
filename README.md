@@ -1,3 +1,4 @@
 # _Youn Myat Myat Aye_
-> _IC Student at Payap University_ <br />
+_International Business Management Student_
+_The International College, Payap University_
 
